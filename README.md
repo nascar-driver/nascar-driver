@@ -1,4 +1,4 @@
-[wretch.dev](https://wretch.dev) — Personal
-
-[openbay.club](https://openbay.club) — Second-hand Airsoft Marketplace
+[wretch.dev](https://wretch.dev)
+|
+[openbay.club](https://openbay.club)
 
